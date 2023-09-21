@@ -1,0 +1,1 @@
+Namaku Jepon aku nakal
